@@ -1,4 +1,4 @@
-#👋 Hi, I’m Kuldeep Raval
+# 👋 Hi, I’m Kuldeep Raval
   
 I was a Modification Team Leader (Technical Project Manager) in the Nuclear Energy Industry which I loved but I have always been adventurous and ambitious so I wanted to try something new! 
 
